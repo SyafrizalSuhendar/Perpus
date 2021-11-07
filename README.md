@@ -1,2 +1,0 @@
-# Perpus
-Tugas JWD
